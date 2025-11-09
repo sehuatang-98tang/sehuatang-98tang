@@ -1,5 +1,6 @@
-## Hi there 👋t.me/sehuatang_98tang_cl1024
+## Hi there 👋
 98堂邀请码（色花堂邀请码），游客加入电报群获取，已帮助几百位游客上岸！
+https://t.me/sehuatang_98tang_cl1024
 
 <!--
 **sehuatang-98tang/sehuatang-98tang** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
